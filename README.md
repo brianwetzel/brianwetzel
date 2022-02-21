@@ -1,8 +1,8 @@
-• Part-time coder - Fintech, Web3, Data Science, Machine Learning
+• Part-time coder - Fintech, Web3, Data Science, Machine Learning 👨‍💻
 
-• Professional Photogrpaher. www.brianwetzelphoto.com
+• Professional Photographer.  📷 www.brianwetzelphoto.com
 
-📫 You can reach me via email at: helloworldwetzel at gmail dot com
+• You can reach me via email at: 📫 helloworldwetzel at gmail dot com
 
 <!---
 brianwetzel/brianwetzel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
